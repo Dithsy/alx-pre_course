@@ -1,1 +1,1 @@
-*hope*
+*strong*
